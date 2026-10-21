@@ -1,4 +1,5 @@
 any harassment to me will be documented and saved, think before you act
+this situation has affected me mentally tremedously(?) and has impacted my health and well being. i understand what i do may be deemed as strange or weird but i am in no way a pedophile and do not deserve the words that have been thrown at me
 <img width="640" height="640" alt="Untitled696_20261020022313" src="https://github.com/user-attachments/assets/d9237e6c-def3-4fd2-ba2d-902cf63d1433" />
 
 list of clips (ALL ARE JOKES UNLESS SAID OTHERWISE)
