@@ -4,6 +4,7 @@ this situation has affected me mentally tremedously(?) and has impacted my healt
 and to my friends and mutuals of my friends who have been affected: i am deeply sorry for dragging you all into my drama and issues these are mine to battle and mine alone and i apologise heavily on any friendships or close people lost because of my doings. i am so so thankful for all your support<3 
 
 update 22/10/2026: all atabook messages have dissapeared and i am unsure as to why or if it is temporary, i am sorry for anybody looking for visual evidence of the harrassment
+update 22/10/2026 - coal made an apology i will link it below
 <img width="640" height="640" alt="Untitled696_20261020022313" src="https://github.com/user-attachments/assets/d9237e6c-def3-4fd2-ba2d-902cf63d1433" />
 
 list of clips (ALL ARE JOKES UNLESS SAID OTHERWISE)
