@@ -1,3 +1,4 @@
+PLEASE DO NOT HARASS COAL/DOMO OR ANYPUPPY RELATED TO THE DRAMA!!!
 any harassment to me will be documented and saved, think before you act
 this situation has affected me mentally tremedously(?) and has impacted my health and well being. i understand what i do may be deemed as strange or weird but i am in no way a pedophile and do not deserve the words that have been thrown at me
 and to my friends and mutuals of my friends who have been affected: i am deeply sorry for dragging you all into my drama and issues these are mine to battle and mine alone and i apologise heavily on any friendships or close people lost because of my doings. i am so so thankful for all your support<3 
