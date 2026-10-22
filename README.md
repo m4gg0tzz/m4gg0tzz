@@ -1,17 +1,10 @@
-PLEASE DO NOT HARASS COAL/DOMO OR ANYPUPPY RELATED TO THE DRAMA!!!
-any harassment to me will be documented and saved, think before you act
-this situation has affected me mentally tremedously(?) and has impacted my health and well being. i understand what i do may be deemed as strange or weird but i am in no way a pedophile and do not deserve the words that have been thrown at me
-and to my friends and mutuals of my friends who have been affected: i am deeply sorry for dragging you all into my drama and issues these are mine to battle and mine alone and i apologise heavily on any friendships or close people lost because of my doings. i am so so thankful for all your support<3 
+updated github 22/10/2026 7:43 pm
+. all ata messages have vanished and i am unsure as to why i did not have any involvement in the deletion of these messages
+. PLEASE do NOT harrass coal/domo or anypupp involved in this
+. sign my ata https://infestedcorpse.atabook.org/ if you have any questions
+. coals response/apology doc https://docs.google.com/document/d/1rmbjnKEKJkS0YnADnxuYgQeMGJ-KXriKmq5I6Hc7zk4/edit?tab=t.0
+while i am very happy to see coal making an attempt to apologise it feels VERY forced and half assed like she cherry picked smaller parts of it and threw "im sorry over it"
+<img width="758" height="508" alt="Screenshot 2026-10-22 7 41 17 PM" src="https://github.com/user-attachments/assets/20933a23-490e-4752-ba0f-dbb3e1a8b624" />
+<img width="650" height="167" alt="Screenshot 2026-10-22 7 41 33 PM" src="https://github.com/user-attachments/assets/ceacb86f-80cd-4a1a-89f0-74bca6a15055" />
 
-update 22/10/2026: all atabook messages have dissapeared and i am unsure as to why or if it is temporary, i am sorry for anybody looking for visual evidence of the harrassment
-
-update 22/10/2026 - coal made an apology i will link it on this account but please check @arthurmorganslove for a response
-<img width="640" height="640" alt="Untitled696_20261020022313" src="https://github.com/user-attachments/assets/d9237e6c-def3-4fd2-ba2d-902cf63d1433" />
-
-list of clips (ALL ARE JOKES UNLESS SAID OTHERWISE)
-
-<img width="806" height="109" alt="Screenshot_20261020_030309_Discord" src="https://github.com/user-attachments/assets/65e10af2-47f0-4bb9-a3ed-fc5b862c209b" />
-<img width="850" height="103" alt="Screenshot_20261020_184936_TikTok" src="https://github.com/user-attachments/assets/7f5328c7-4368-4f51-8554-14b2c611f00c" />
-<img width="419" height="149" alt="Screenshot 2026-10-20 10 08 51 PM" src="https://github.com/user-attachments/assets/4956a247-d754-4125-9ebe-90f488f2c2aa" />
-<img width="1135" height="386" alt="Screenshot_20261022_012759_TikTok" src="https://github.com/user-attachments/assets/0341082b-7247-4ff1-b0ae-a2d8fd572cb7" />
-this isnt a joke ^
+this is all we got as an apology, these two small paragraphs for weeks maybe MONTHS of harrassment that has lead to me suffering mentally and psychically, i am very thankful still as it may be a start but it also feels like pushing the blame onto other people and away from domo herself, this apology didnt even cover 2% of the harrassment while also using a clip of me and i will admit that ata sign was very very rude and petty of me but using it in an apology feels like an attempt to still demonise me, this isnt me trying to force more out of coal or anyone involved as i do not wish for this to continue but i am very heartbroken to see that after all the harrassment me and my friends have endured the most we got was "im sorry but i didnt send those messages", and maybe shes right maybe she didnt but that still doesnt mean she didnt contribute to them, that is all i can add for now im sorry if my wording seems wrong i am bad at this
