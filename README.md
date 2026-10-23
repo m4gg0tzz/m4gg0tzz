@@ -14,3 +14,4 @@ update 23/10/2026 12:19am - a new doc on coal has been made by  ex friends of he
 please give it a read through!
 
 update 23/10/26 8;27pm . i will be stepping away from the main portion of the drama because it has severely affected my mental and psychical health and has made my process of healing/getting better slower and harder. i will still be gathering information towards this though so please feel free to reach out to me if you have info
+update 23/10/29 9:06pm . i have gathered some clips and docs https://docs.google.com/document/d/1TdiIuDVgWr7At2dJy1FvPEXoC1XEE2CbR7LihQb50Ls/edit?tab=t.0
