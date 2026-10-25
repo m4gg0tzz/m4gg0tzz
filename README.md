@@ -18,4 +18,6 @@ update 23/10/29 9:06pm . i have gathered some clips and docs https://docs.google
 
 <img width="320" height="300" alt="Screenshot 2026-10-25 2 11 54 PM" src="https://github.com/user-attachments/assets/e28dac2b-5363-412f-bcb3-ac11a0a40001" />
 
+i am not a proshipper, i am a minor and so is gourdy. it is a two-three year gap.
+
 i dont think il be here much longer im sorry to those i have affected
