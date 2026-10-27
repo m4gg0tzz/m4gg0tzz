@@ -68,3 +68,7 @@ pathetic attempt btw it js makes you look worse !!!!!!!!!
 <img width="405" height="24" alt="Screenshot 2026-10-27 5 08 51 PM" src="https://github.com/user-attachments/assets/390b22e7-c6bd-4bc0-9b6d-cfedf19d6bd2" />
 
 id rather slit my wrist vertical then miss you get a fucking life coal
+<img width="417" height="235" alt="Screenshot 2026-10-27 5 11 10 PM" src="https://github.com/user-attachments/assets/ae756fc9-44bc-46ed-9d4f-3937ddfbf5d3" />
+<img width="416" height="155" alt="Screenshot 2026-10-27 5 11 19 PM" src="https://github.com/user-attachments/assets/0287063e-c384-4a63-afb0-6e8963b6c6b5" />
+
+my prior statement still stands 
