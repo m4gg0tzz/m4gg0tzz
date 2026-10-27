@@ -97,3 +97,6 @@ ty for atleast respecting my pronouns ig
 im eating oreo ice cream rn if anyone cares
 <img width="419" height="43" alt="Screenshot 2026-10-27 6 18 35 PM" src="https://github.com/user-attachments/assets/c93632b4-1a30-4012-905f-361f60cc73dd" />
 <img width="419" height="127" alt="Screenshot 2026-10-27 7 36 24 PM" src="https://github.com/user-attachments/assets/956df972-ccb4-4944-9c32-bb88a29400a5" />
+<img width="434" height="76" alt="Screenshot 2026-10-27 11 22 47 PM" src="https://github.com/user-attachments/assets/6c18e820-42d0-4206-9c37-2677e97afd27" />
+<img width="418" height="51" alt="Screenshot 2026-10-27 11 21 16 PM" src="https://github.com/user-attachments/assets/ff74e35f-19d1-4bb0-b2cf-6c96b1855c6c" />
+<img width="439" height="76" alt="Screenshot 2026-10-27 11 20 02 PM" src="https://github.com/user-attachments/assets/301651f4-6e20-445c-860c-d3c7dc62167c" />
