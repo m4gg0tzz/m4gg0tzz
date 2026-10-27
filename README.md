@@ -38,3 +38,7 @@ my friends response to the ata screenshot
 
 <img width="297" height="115" alt="Screenshot 2026-10-27 4 25 45 PM" src="https://github.com/user-attachments/assets/d585fee1-7270-4e5c-be12-f34409cf3af1" />
 <img width="424" height="163" alt="Screenshot 2026-10-27 4 35 46 PM" src="https://github.com/user-attachments/assets/6dee6429-4eaf-4264-a39b-0379ec019282" />
+
+<img width="416" height="224" alt="Screenshot 2026-10-27 4 43 44 PM" src="https://github.com/user-attachments/assets/ea47ac69-3a67-4eb0-821a-46d004dd99bf" />
+
+btw listen to mc bushpig n machine girl
