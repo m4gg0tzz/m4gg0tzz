@@ -43,3 +43,5 @@ my friends response to the ata screenshot
 
 btw listen to mc bushpig n machine girl
 also documenting things and being mad is different im way to high to be mad rn lmao keep stalking my socials <3
+
+<img width="414" height="92" alt="Screenshot 2026-10-27 4 45 54 PM" src="https://github.com/user-attachments/assets/ffc91587-e88a-4024-bb3f-9ba3ef2ec963" />
