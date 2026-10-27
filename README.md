@@ -57,3 +57,5 @@ more of a fan then youll ever be btw !!!!!!!
 <img width="434" height="274" alt="Screenshot 2026-10-27 4 51 30 PM" src="https://github.com/user-attachments/assets/e6f1d28f-739f-4fb2-9d12-7f70a8155e44" />
 
 pathetic attempt btw it js makes you look worse !!!!!!!!!
+
+<img width="426" height="106" alt="Screenshot 2026-10-27 4 56 57 PM" src="https://github.com/user-attachments/assets/d515cb94-0b25-4dd0-bfbf-3b5fccf0c726" />
