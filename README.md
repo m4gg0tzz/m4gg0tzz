@@ -62,3 +62,5 @@ pathetic attempt btw it js makes you look worse !!!!!!!!!
 <img width="426" height="106" alt="Screenshot 2026-10-27 4 56 57 PM" src="https://github.com/user-attachments/assets/d515cb94-0b25-4dd0-bfbf-3b5fccf0c726" />
 <img width="423" height="30" alt="Screenshot 2026-10-27 4 58 49 PM" src="https://github.com/user-attachments/assets/b2b211bc-d4f5-4d1d-8ee9-b8cb9e3a7317" />
 <img width="616" height="55" alt="Screenshot 2026-10-27 4 59 27 PM" src="https://github.com/user-attachments/assets/dd8bcf5a-2f96-4f79-9c24-5d9c8570de42" />
+<img width="422" height="63" alt="Screenshot 2026-10-27 5 03 11 PM" src="https://github.com/user-attachments/assets/8e603491-fd07-42d7-b3af-4f778f294963" />
+<img width="413" height="111" alt="Screenshot 2026-10-27 5 03 28 PM" src="https://github.com/user-attachments/assets/06e744c1-498f-4bbd-8f15-227f9a4b6620" />
