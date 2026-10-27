@@ -28,3 +28,7 @@ this is coal. coal herself said she didnt want anything to do with me yet here s
 <img width="612" height="42" alt="Screenshot 2026-10-27 3 46 50 PM" src="https://github.com/user-attachments/assets/df321f4e-a1af-48be-b4f0-712f8a69e18a" />
 
 screenshot taken directly from coals "apology" doc saying she didnt want anything 2 do w us anymore ^^^
+
+
+<img width="504" height="356" alt="Screenshot 2026-10-27 2 54 20 PM" src="https://github.com/user-attachments/assets/905c26fa-e789-424e-9eea-1392f0fa61e6" />
+<img width="1163" height="244" alt="Screenshot_20261027_160456_Discord" src="https://github.com/user-attachments/assets/7075481e-4cfe-4294-b8b2-4b015ee3e2f8" />
