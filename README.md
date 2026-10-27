@@ -1,3 +1,4 @@
+<img width="297" height="115" alt="Screenshot 2026-10-27 4 25 45 PM" src="https://github.com/user-attachments/assets/73cd3276-ff07-46d9-b59e-8964473c675c" />
 updated github 22/10/2026 7:43 pm
 . all ata messages have vanished and i am unsure as to why i did not have any involvement in the deletion of these messages
 . PLEASE do NOT harrass coal/domo or anypupp involved in this
@@ -34,3 +35,5 @@ screenshot taken directly from coals "apology" doc saying she didnt want anythin
 <img width="1163" height="244" alt="Screenshot_20261027_160456_Discord" src="https://github.com/user-attachments/assets/7075481e-4cfe-4294-b8b2-4b015ee3e2f8" />
 
 my friends response to the ata screenshot
+
+<img width="297" height="115" alt="Screenshot 2026-10-27 4 25 45 PM" src="https://github.com/user-attachments/assets/d585fee1-7270-4e5c-be12-f34409cf3af1" />
