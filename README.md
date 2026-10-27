@@ -89,3 +89,4 @@ you obviously care given youve been talking so much shit about me while ive just
 <img width="419" height="48" alt="Screenshot 2026-10-27 5 37 29 PM" src="https://github.com/user-attachments/assets/2ffeb6ea-9263-4298-abbe-f59aa792fef6" />
 
 several people agreed w me that this is weird to say about a minor
+<img width="428" height="33" alt="image" src="https://github.com/user-attachments/assets/4da6979a-f361-48b9-8ca8-425e47ada017" />
