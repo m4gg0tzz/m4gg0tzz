@@ -24,5 +24,6 @@ i am not a proshipper, i am a minor and so is gourdy. it is a two-three year gap
 <img width="422" height="324" alt="Screenshot 2026-10-27 3 36 57 PM" src="https://github.com/user-attachments/assets/dbe4c2e0-e5d7-4723-a58c-bdf3ff78e42d" />
 
 this is coal. coal herself said she didnt want anything to do with me yet here she is talking shit about me when im JUST sat here
+<img width="612" height="42" alt="Screenshot 2026-10-27 3 46 50 PM" src="https://github.com/user-attachments/assets/df321f4e-a1af-48be-b4f0-712f8a69e18a" />
 
 i dont think il be here much longer im sorry to those i have affected
