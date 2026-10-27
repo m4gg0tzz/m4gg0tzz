@@ -20,4 +20,9 @@ update 23/10/29 9:06pm . i have gathered some clips and docs https://docs.google
 
 i am not a proshipper, i am a minor and so is gourdy. it is a two-three year gap.
 
+<img width="438" height="164" alt="Screenshot 2026-10-27 3 34 37 PM" src="https://github.com/user-attachments/assets/d5b1226b-1627-46b8-8540-d9dc34847fc6" />
+<img width="422" height="324" alt="Screenshot 2026-10-27 3 36 57 PM" src="https://github.com/user-attachments/assets/dbe4c2e0-e5d7-4723-a58c-bdf3ff78e42d" />
+
+this is coal. coal herself said she didnt want anything to do with me yet here she is talking shit about me when im JUST sat here
+
 i dont think il be here much longer im sorry to those i have affected
