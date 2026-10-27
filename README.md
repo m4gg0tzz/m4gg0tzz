@@ -64,3 +64,7 @@ pathetic attempt btw it js makes you look worse !!!!!!!!!
 <img width="616" height="55" alt="Screenshot 2026-10-27 4 59 27 PM" src="https://github.com/user-attachments/assets/dd8bcf5a-2f96-4f79-9c24-5d9c8570de42" />
 <img width="422" height="63" alt="Screenshot 2026-10-27 5 03 11 PM" src="https://github.com/user-attachments/assets/8e603491-fd07-42d7-b3af-4f778f294963" />
 <img width="413" height="111" alt="Screenshot 2026-10-27 5 03 28 PM" src="https://github.com/user-attachments/assets/06e744c1-498f-4bbd-8f15-227f9a4b6620" />
+<img width="398" height="22" alt="Screenshot 2026-10-27 5 07 13 PM" src="https://github.com/user-attachments/assets/26df16af-d9dc-40e6-af7f-4ae47cba907d" />
+<img width="405" height="24" alt="Screenshot 2026-10-27 5 08 51 PM" src="https://github.com/user-attachments/assets/390b22e7-c6bd-4bc0-9b6d-cfedf19d6bd2" />
+
+id rather slit my wrist vertical then miss you get a fucking life coal
