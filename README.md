@@ -78,3 +78,7 @@ follow me i dont harass minors, claim il change and say i dont want anything 2 d
 <img width="418" height="103" alt="Screenshot 2026-10-27 5 14 19 PM" src="https://github.com/user-attachments/assets/a87b27a1-28a4-4619-b754-34ea8765ac57" />
 
 im not mad im tired
+<img width="433" height="77" alt="Screenshot 2026-10-27 5 29 02 PM" src="https://github.com/user-attachments/assets/0ae3aa19-f516-4e31-9ee8-137705d40f92" />
+<img width="418" height="40" alt="Screenshot 2026-10-27 5 29 14 PM" src="https://github.com/user-attachments/assets/931cb478-9f66-4da9-9a33-cdc281d1329a" />
+
+coal unblocked me btw
