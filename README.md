@@ -82,3 +82,6 @@ im not mad im tired
 <img width="418" height="40" alt="Screenshot 2026-10-27 5 29 14 PM" src="https://github.com/user-attachments/assets/931cb478-9f66-4da9-9a33-cdc281d1329a" />
 
 coal unblocked me btw
+<img width="415" height="66" alt="Screenshot 2026-10-27 5 30 48 PM" src="https://github.com/user-attachments/assets/b43c3fc8-f444-492f-853e-eefe0d8956a4" />
+
+you obviously care given youve been talking so much shit about me while ive just been sat in the corner, i havent said a SINGLE word to you or moved an inch
