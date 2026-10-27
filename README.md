@@ -92,3 +92,4 @@ several people agreed w me that this is weird to say about a minor
 <img width="428" height="33" alt="image" src="https://github.com/user-attachments/assets/4da6979a-f361-48b9-8ca8-425e47ada017" />
 <img width="401" height="54" alt="Screenshot 2026-10-27 6 00 13 PM" src="https://github.com/user-attachments/assets/47b3ad03-1214-49c8-81a1-ad266dae7e86" />
 ty for atleast respecting my pronouns ig
+<img width="406" height="68" alt="Screenshot 2026-10-27 6 01 58 PM" src="https://github.com/user-attachments/assets/71152472-2d81-48e0-bed7-89804f8cc80c" />
