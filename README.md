@@ -85,3 +85,7 @@ coal unblocked me btw
 <img width="415" height="66" alt="Screenshot 2026-10-27 5 30 48 PM" src="https://github.com/user-attachments/assets/b43c3fc8-f444-492f-853e-eefe0d8956a4" />
 
 you obviously care given youve been talking so much shit about me while ive just been sat in the corner, i havent said a SINGLE word to you or moved an inch
+
+<img width="419" height="48" alt="Screenshot 2026-10-27 5 37 29 PM" src="https://github.com/user-attachments/assets/2ffeb6ea-9263-4298-abbe-f59aa792fef6" />
+
+several people agreed w me that this is weird to say about a minor
