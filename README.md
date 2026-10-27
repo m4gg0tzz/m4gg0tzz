@@ -49,3 +49,7 @@ also documenting things and being mad is different im way to high to be mad rn l
 <img width="415" height="86" alt="Screenshot 2026-10-27 4 47 55 PM" src="https://github.com/user-attachments/assets/024ee059-0c02-4f42-81a6-880e06911b78" />
 
 running low on storage stop filling my laptop with bullshit
+
+<img width="332" height="82" alt="Screenshot 2026-10-27 4 48 39 PM" src="https://github.com/user-attachments/assets/8df1e102-e7a3-443d-a5ad-2937c61c21fe" />
+
+more of a fan then youll ever be btw !!!!!!!
