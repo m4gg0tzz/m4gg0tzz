@@ -72,3 +72,6 @@ id rather slit my wrist vertical then miss you get a fucking life coal
 <img width="416" height="155" alt="Screenshot 2026-10-27 5 11 19 PM" src="https://github.com/user-attachments/assets/0287063e-c384-4a63-afb0-6e8963b6c6b5" />
 
 my prior statement still stands 
+<img width="416" height="155" alt="Screenshot 2026-10-27 5 13 00 PM" src="https://github.com/user-attachments/assets/aed9c674-8bb8-43b2-8db6-dabe18390330" />
+
+follow me i dont harass minors, claim il change and say i dont want anything 2 do with said minor just to unblock and have smth to do with that minor again
