@@ -32,3 +32,5 @@ screenshot taken directly from coals "apology" doc saying she didnt want anythin
 
 <img width="504" height="356" alt="Screenshot 2026-10-27 2 54 20 PM" src="https://github.com/user-attachments/assets/905c26fa-e789-424e-9eea-1392f0fa61e6" />
 <img width="1163" height="244" alt="Screenshot_20261027_160456_Discord" src="https://github.com/user-attachments/assets/7075481e-4cfe-4294-b8b2-4b015ee3e2f8" />
+
+my friends response to the ata screenshot
