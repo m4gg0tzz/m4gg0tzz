@@ -75,3 +75,6 @@ my prior statement still stands
 <img width="416" height="155" alt="Screenshot 2026-10-27 5 13 00 PM" src="https://github.com/user-attachments/assets/aed9c674-8bb8-43b2-8db6-dabe18390330" />
 
 follow me i dont harass minors, claim il change and say i dont want anything 2 do with said minor just to unblock and have smth to do with that minor again
+<img width="418" height="103" alt="Screenshot 2026-10-27 5 14 19 PM" src="https://github.com/user-attachments/assets/a87b27a1-28a4-4619-b754-34ea8765ac57" />
+
+im not mad im tired
