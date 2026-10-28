@@ -104,3 +104,6 @@ im eating oreo ice cream rn if anyone cares
 <img width="512" height="487" alt="20250929_190847" src="https://github.com/user-attachments/assets/9e88b5d2-d7a6-4137-bb29-7c104f3b2572" />
 
 my dog stella and my ugly fatass rotund old man rabbit benjamin
+
+<img width="498" height="284" alt="Screenshot 2026-10-28 12 51 58 AM" src="https://github.com/user-attachments/assets/05941eb2-f72b-4059-921d-53207b27d7db" />
+<img width="497" height="251" alt="Screenshot 2026-10-28 12 52 13 AM" src="https://github.com/user-attachments/assets/1a239d86-0b03-47a6-ac19-b044966f30fd" />
