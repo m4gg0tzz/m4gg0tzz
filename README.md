@@ -107,3 +107,5 @@ my dog stella and my ugly fatass rotund old man rabbit benjamin
 
 <img width="498" height="284" alt="Screenshot 2026-10-28 12 51 58 AM" src="https://github.com/user-attachments/assets/05941eb2-f72b-4059-921d-53207b27d7db" />
 <img width="497" height="251" alt="Screenshot 2026-10-28 12 52 13 AM" src="https://github.com/user-attachments/assets/1a239d86-0b03-47a6-ac19-b044966f30fd" />
+
+coal is now trying to associate me with someone who draws gourdy porn, that is not me i only have ONE account which is thatdogcody_ and the only gourdy art on there is SFW gourdysona art
