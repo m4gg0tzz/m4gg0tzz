@@ -109,6 +109,7 @@ my dog stella and my ugly fatass rotund old man rabbit benjamin
 <img width="497" height="251" alt="Screenshot 2026-10-28 12 52 13 AM" src="https://github.com/user-attachments/assets/1a239d86-0b03-47a6-ac19-b044966f30fd" />
 
 <img width="423" height="36" alt="Screenshot 2026-10-28 6 41 49 PM" src="https://github.com/user-attachments/assets/076262b4-c965-4fab-be67-306de7d32f12" />
-
+<img width="418" height="352" alt="Screenshot 2026-10-28 6 43 10 PM" src="https://github.com/user-attachments/assets/024f76d9-4c83-4a8b-b38e-8770840cd24e" />
+grown adult dragging this btw
 
 coal is now trying to associate me with someone who draws gourdy porn, that is not me i only have ONE account which is thatdogcody_ and the only gourdy art on there is SFW gourdysona art https://www.tiktok.com/@thatdogcody_ for proof. please do not believe coal or whoever else is spreading these lies i feel sick knowing im being labelled as somebody who draws porn of my own s/o, i am not even old enough to draw that.
