@@ -100,3 +100,7 @@ im eating oreo ice cream rn if anyone cares
 <img width="434" height="76" alt="Screenshot 2026-10-27 11 22 47 PM" src="https://github.com/user-attachments/assets/6c18e820-42d0-4206-9c37-2677e97afd27" />
 <img width="418" height="51" alt="Screenshot 2026-10-27 11 21 16 PM" src="https://github.com/user-attachments/assets/ff74e35f-19d1-4bb0-b2cf-6c96b1855c6c" />
 <img width="439" height="76" alt="Screenshot 2026-10-27 11 20 02 PM" src="https://github.com/user-attachments/assets/301651f4-6e20-445c-860c-d3c7dc62167c" />
+<img width="239" height="512" alt="20240714_193503" src="https://github.com/user-attachments/assets/0ddcfede-d763-4212-a446-2ce756cccdf1" />
+<img width="512" height="487" alt="20250929_190847" src="https://github.com/user-attachments/assets/9e88b5d2-d7a6-4137-bb29-7c104f3b2572" />
+
+my dog stella and my ugly fatass rotund old man rabbit benjamin
