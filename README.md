@@ -118,3 +118,5 @@ coals copying my fursona maggot
 
 coals friends are now trying to associate me with someone who draws gourdy porn, that is not me i only have ONE account which is thatdogcody_ and the only gourdy art on there is SFW gourdysona art https://www.tiktok.com/@thatdogcody_ for proof. please do not believe coal or whoever else is spreading these lies i feel sick knowing im being labelled as somebody who draws porn of my own s/o, i am not even old enough to draw that.
 adns im not mockigncoal forher rleapse imbrigning light 2 the afct she said it pbuliclay aaroudn kdis andpeoplw who could etg gtrisggerd ok ihopeshes ok and can gethelp
+
+i blocked coal
