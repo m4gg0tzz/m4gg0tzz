@@ -1,3 +1,9 @@
+(TRIgGER WARNING FOR HARSH AND GROSS TOPICS) i am not saying this to be mean, coal if you can even see this your statement about "victims like you should be have the confidence to call people out" (paraphrased because i just woke up as of writing this and cannot remember fully what it was) is quite strange to me, i am also a victim of a sex crime i was groomed into a ring and had cp of me shared THIS YEAR and i am trying so desperately to heal from it but all this is not helping. i never drew those images and never will draw anything like that because i am aware of how horrible csam/cp is, this is not me seeking another arguement or anything similar i just thought i should put my opinion out there please do not conttact me
+
+
+
+
+
 <img width="423" height="30" alt="Screenshot 2026-10-27 4 58 49 PM" src="https://github.com/user-attachments/assets/afadf811-f182-457c-92b1-7e19a74daf86" />
 <img width="297" height="115" alt="Screenshot 2026-10-27 4 25 45 PM" src="https://github.com/user-attachments/assets/73cd3276-ff07-46d9-b59e-8964473c675c" />
 updated github 22/10/2026 7:43 pm
